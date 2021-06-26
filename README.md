@@ -3011,6 +3011,9 @@ But I'm not gonna lie down until I get there.
 *Una pegatina*
 
 ---------
+
 > Loli, que tu niño se ha caído en el colegio y le han dado 4 puntos!! - Ni en eso aprueba el hioeputa!!
 
-> *Manuelinus Torvals*
+*Manuelinus Torvals*
+
+---------
